@@ -1,2 +1,0 @@
-# Coolmeow
-Coolmeow Soft
